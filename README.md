@@ -1,2 +1,2 @@
 # HELLO-WORLD
-GITHUB CLASS INSTRUCTION
+self taught graphic designer
